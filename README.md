@@ -1,2 +1,1 @@
-# demo24
-demo24
+xin chao toi la 1 lap trinh vien ptit moi trong new world!
